@@ -1,3 +1,5 @@
+![Jamie](https://i.imgur.com/7v11IiR.png)
+
 ʕ•́ᴥ•̀ʔっ Jamie!
  :)  I live in New Zealand 
  
